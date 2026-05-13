@@ -1,4 +1,4 @@
-# 
+# elite nft flip bot | auto-buy + liquidity-analysis is the best nft flip bot, featuring auto-buy and liquidity-analysis. Fast, smart, and optimized for NFT trading on marketplaces
 
 
 
